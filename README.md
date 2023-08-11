@@ -1,3 +1,3 @@
 # Hidden in light, shown in shadow.
 
-The title alone proves me.
+Tell me do you see it.
